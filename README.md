@@ -1,2 +1,2 @@
-# C-ep-a-a-Myx-e-o-
+# Задание YaNDeX номер 1
 Cтepлитaмaк/Myxамeтзянoв
